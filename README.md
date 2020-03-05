@@ -3,7 +3,7 @@
 ### Technology &
 #### Sciences
 ##### Autonomous
-###### I WILL FUCK U
+
 
 ***AITS*** is located in places tpt,rjmt,kdp and hyd
 
